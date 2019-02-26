@@ -1,1 +1,2 @@
-# rsschool-2019Q1-codeacademy
+mikhail nakanechny
+https://www.codecademy.com/users/mikhailnakanechny/achievements
